@@ -1,2 +1,2 @@
-# econom-a-naranja---colombia
+economia-naranja colombia
 exposición y entrevista sobre economía naranja
